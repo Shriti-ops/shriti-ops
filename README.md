@@ -8,7 +8,7 @@ Here are some ideas to get you started:
 - 🔭 I’m currently pursuing b.tech in CSE(AIML)..
 - 🌱 I’m currently learning ...various languages i.e. python ,cse,html,java etc..
 - 💬 Ask me about ...my programming skills also interests in reading thriller books..
-- 📫 How to reach me: ...shrit2304@gmail.com
+- 📫 How to reach me: ...shriti2304@gmail.com
 - 😄 Pronouns: she
 - ⚡ Fun fact: Mine fun fact is like I'm a crying baby.. small things make me cry also this is the silliest thing ever had.
 -->
