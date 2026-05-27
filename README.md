@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...my programming skills also interests in reading thriller books..
 - 📫 How to reach me: ...shriti2304@gmail.com
 - 😄 Pronouns: she
-- ⚡ Fun fact: Mine fun fact is like I'm a crying baby.. small things make me cry also this is the silliest thing ever had.
--->
+
+
